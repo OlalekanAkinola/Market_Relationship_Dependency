@@ -136,7 +136,12 @@ Author
 Olalekan Akinola
 Market Analyst | Investment Research | Financial Data Analytics
 
-GitHub
+- [GitHub Profile](https://github.com/OlalekanAkinola)
+
+- [LinkedIn](https://www.linkedin.com/in/olalekan-akinola)
+
+- [Lemm Financials](https://olalekanakinola.substack.com/)
+
 
 Disclaimer
 
