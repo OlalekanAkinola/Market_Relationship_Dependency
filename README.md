@@ -140,7 +140,7 @@ Market Analyst | Investment Research | Financial Data Analytics
 
 - [LinkedIn](https://www.linkedin.com/in/olalekan-akinola)
 
-- [Lemm Financials](https://olalekanakinola.substack.com/)
+- [Olalekan Akinola](https://olalekanakinola.substack.com/)
 
 
 Disclaimer
